@@ -1,5 +1,5 @@
 ### Hi there 👋
-- I’m currently  Studying Trakya University Computer Engineering
+- I’m Computer Engineer
 
 
 
